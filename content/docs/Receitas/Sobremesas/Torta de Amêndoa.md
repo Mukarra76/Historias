@@ -1,2 +1,0 @@
-# Torta de Amêndoa 
-
